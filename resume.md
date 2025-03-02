@@ -2,7 +2,9 @@
 
 Charting the knowledge of the Internet, just like Galileo charted the stars.
 
-## Job History maay be not all of have it.
+
+## Jobs is very waste time things but make me have a lot money so confuse and feel bad.
+
 
 ### GitHub Trainer
 

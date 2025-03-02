@@ -2,7 +2,7 @@
 
 Charting the knowledge of the Internet, just like Galileo charted the stars.
 
-## Jobs
+## Jobs is very waste time things but make me have a lot money so confuse and feel bad.
 
 ### GitHub Trainer
 
